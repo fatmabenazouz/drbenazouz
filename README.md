@@ -1,1 +1,1 @@
-This is the website of Dr. Ben Azouz, a highly experienced medical doctor/general practitioner in Bryanston, Johannesburg. Here you can find out more about him, how to contact him, the conditions he treats, and more.
+This is the website of Dr. Ben Azouz, a highly experienced medical doctor/general practitioner in Bryanston, Johannesburg. Here you can learn about his experiences with medical consulting, how to contact him, the conditions he treats, and more.
